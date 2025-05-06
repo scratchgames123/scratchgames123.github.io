@@ -9,3 +9,6 @@
 
 # Игры
 [Игра 1.Приключение котика Васи](https://scratchgames.servegame.com/cat_Vasua.html)
+
+
+[Подпишись на мой другой канал](https://rutube.ru/channel/44377742/)
